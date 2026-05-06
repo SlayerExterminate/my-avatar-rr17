@@ -1,4 +1,4 @@
-
+my avatar Script stealth is the best my avatar Script, featuring undetectable and infinite resources. Safe and powerful for all your needs.
 
 
 
